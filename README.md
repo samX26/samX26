@@ -7,4 +7,4 @@ Alura💙
   - Ultilizo esse espaço do Perfil para mandar meus projetos prontos/desenvolvidos, ou me organizar                                                                                                                                                                              
  ###Entrar em contato comigo###                                                                                                                                                                                                                                                   
 00001128419014sp@al.educacao.sp.gov.br                                        
-Meu sonho ainda não é definido mas em breve saberei
+- Meu sonho ainda não é definido mas em breve saberei
